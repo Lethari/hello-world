@@ -1,0 +1,1 @@
+It is important to fully understand the work you do as well as know the skills required in order to become a good coder and to develop in the profession.
